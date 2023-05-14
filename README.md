@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WillGoodai
 - 👀 I’m interested in changing the world
-- 🌱 I’m currently learning how to start
-- 💞️ I’m looking to collaborate to make change  
+- 🌱 I’m currently standing up the effort
+- 💞️ I’m looking collaberate   
 - 📫 Find me on Discord
 
 <!---
